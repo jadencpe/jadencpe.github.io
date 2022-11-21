@@ -20,6 +20,7 @@ Jonathan Davis is a traumatized icon. No matter how many times I hear "pretty"  
 ![vic fuentes supremacy](https://i.pinimg.com/564x/c5/63/24/c56324eb32d9ec279d73c27f0be48edf.jpg)
 
 Man, at this point i think im just inlove with a man thats about 3 decades older than me. its like the book "lolita" except in this case, charlotte is *actually* committed instead of just being a re-iteration and the delusions of humbert. goddamn i just cant help it look at this dude lord fuentesquaad.
+
 ![vic fuentes supremacy](https://i.pinimg.com/564x/54/3e/48/543e4875b534ba85e63f13e0b4807838.jpg)
 
 GOOODDDDD THEIR SONGS ARE SO GOOD I CANNOT EMPHASIZE THEM ENOUGH. Everytime i hear any one of their songs i start screaming, crying, throwing up, banging my head against a concrete wall, devouring my intestines out, sawing my head off, blood bubbling out of my mouth, gurgling my larynx out while i slowly go insane and bash my skull out so much it turns into a powder, which i would use as babypowder to stop the tears.
